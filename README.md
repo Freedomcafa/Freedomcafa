@@ -1,4 +1,5 @@
 Hi, I’m 马渡秋水@Freedomcafa👋
+
  👀 I’m now a graduate student majored Design and Modernity in Central Academy of Fine Arts.
  ✨ My research interests focus on computational design.
  💞️ I love math and deeplearning which is fantastic for me,and I enjoy trying in the AI field.
