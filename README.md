@@ -5,7 +5,6 @@ Hi, I’m 马渡秋水@Freedomcafa👋
  💞️ I love math and deeplearning which is fantastic for me,and I enjoy trying in the AI field.
  🌱 I’m currently learning fron-end development.
  😄 My goal is developing products with AI functionality.
- 
  📫 How to reach me ... Contact me via 12230400058@cafa.edu.cn
 
 
